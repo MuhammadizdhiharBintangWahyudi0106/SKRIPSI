@@ -1,0 +1,2 @@
+# SKRIPSI
+Mengawali pembuatan SKRIPSI
